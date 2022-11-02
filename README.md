@@ -38,3 +38,5 @@ pw：into1
 #### 17: [主剧情，出场6111098，11一边被口一边做题，一点8马震，9人体榨汁，6触手惊悚向，结尾6下线](https://www.verybin.com/?1fbbfd24d071ce33#40wSGs3ioQvneJ6UCqABzPSiWGsVYXN8oUsagYRvXYY=)
 
 #### 18: [主7，123456（尸体）提及，难产，脱垂，体外虐宫，死亡（格外重口，慎入](https://www.verybin.com/?612990bd9069a6c7#FeyRLn3BhYFHpjMF/kDN83HeVozezkqq8uysXFJ7Vgc=)
+
+#### 19: [一半剧情1011，一半10色情主播自攻自受](https://www.verybin.com/?1394ac57611ccd4e#5oWmzDroI6DMX0fSs1AhfL/I+eHU6Dr92/zUecqFSBo=)
