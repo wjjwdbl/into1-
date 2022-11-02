@@ -1,7 +1,7 @@
 # into1
 ## 七个房间
 
-pw：into1
+Password：into1
 
 无明显cp，单人向
 
