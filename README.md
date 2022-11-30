@@ -46,3 +46,5 @@ Password：into1
 #### 20: [8910，主剧情，一点8机车+薄荷油，马煎致死，一点9生姜+吸乳，微恐](https://www.verybin.com/?96d3970801e20f07#ztIHGYeU+hLlGZC4aDYBaW4hIzGq6u5ytRi64yL60Os=)
 
 #### 21: [偏剧情，出场91011，10五感丧失被艹，11塞着跳蛋做题，指煎，结尾微恐（为了阅读效果这点不写明预警了](https://www.verybin.com/?a5042ee16faba6d9#690gwKYLHpk5lyFlGYYlBZAhjjZwknvQPB38EE93mNg=)
+
+#### 22: [主剧情，91011，一点9温泉致死，结尾不恐怖但看懂了会有点儿毛](https://www.verybin.com/?a4df26726c29c03c#tC64W+8+f6VCEw5XpCa9/job4nZpZtloUp6Y+LdU7hg=)
