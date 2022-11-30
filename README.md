@@ -44,3 +44,5 @@ Password：into1
 #### 19: [一半剧情1011，一半10色情主播自攻自受](https://www.verybin.com/?1394ac57611ccd4e#5oWmzDroI6DMX0fSs1AhfL/I+eHU6Dr92/zUecqFSBo=)
 
 #### 20: [8910，主剧情，一点8机车+薄荷油，马煎致死，一点9生姜+吸乳，微恐](https://www.verybin.com/?96d3970801e20f07#ztIHGYeU+hLlGZC4aDYBaW4hIzGq6u5ytRi64yL60Os=)
+
+#### 21: [偏剧情，出场91011，10五感丧失被艹，11塞着跳蛋做题，指煎，结尾微恐（为了阅读效果这点不写明预警了](https://www.verybin.com/?a5042ee16faba6d9#690gwKYLHpk5lyFlGYYlBZAhjjZwknvQPB38EE93mNg=)
