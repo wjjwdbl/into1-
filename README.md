@@ -48,3 +48,5 @@ Password：into1
 #### 21: [偏剧情，出场91011，10五感丧失被艹，11塞着跳蛋做题，指煎，结尾微恐（为了阅读效果这点不写明预警了](https://www.verybin.com/?a5042ee16faba6d9#690gwKYLHpk5lyFlGYYlBZAhjjZwknvQPB38EE93mNg=)
 
 #### 22: [主剧情，91011，一点9温泉致死，结尾不恐怖但看懂了会有点儿毛](https://www.verybin.com/?a4df26726c29c03c#tC64W+8+f6VCEw5XpCa9/job4nZpZtloUp6Y+LdU7hg=)
+
+#### 23: [结局，主剧情，开头一点11教室play，非常惨且重口的一章，涉及11肢体切断（不血腥版），10被钉在墙上（有血）](https://www.verybin.com/?e95935902e3cc645#ddj4aFFM2PGSUjmDrQgzFSEnLmtSQXuTpaTAn6Y1LsU=)
